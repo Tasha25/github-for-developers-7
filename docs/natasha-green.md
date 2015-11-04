@@ -1,3 +1,6 @@
 ## Introduction
 
-My intro
+Natasha Green
+New York
+Rice and Chicken
+Archery
