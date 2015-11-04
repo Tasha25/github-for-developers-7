@@ -4,4 +4,4 @@ Natasha Green
 New York
 Rice and Chicken
 Archery
-Purple
+Purple is the color.
